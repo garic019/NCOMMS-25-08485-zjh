@@ -1,1 +1,1 @@
-# NCOMMS-25-08485-zjh
+This study aimed to investigate the longitudinal associations of green space, blue space natural environment, and air pollution with the risk of depression among cancer survivors, and to examine the potential mediating role of metabolites. 
